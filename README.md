@@ -1,2 +1,0 @@
-# Fakhry-Alazazzy
-portfolio deme
